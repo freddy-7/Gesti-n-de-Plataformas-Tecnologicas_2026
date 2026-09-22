@@ -1,0 +1,1 @@
+# Gesti-n-de-Plataformas-Tecnologicas_2026
